@@ -39,7 +39,7 @@ Nα βρουν λύσεις που θα συμβάλλουν στη μείωση
 
 Χαρτόνια, ρολά υγείας και άλλα ανακυκλώσιμα υλικά, μαρκαδόροι, τέμπερες, κόλλες
 όχημα και φιγούρες playmobil
-Φωτόδεντρο - Προβολή αντικειμένου (photodentro.edu.gr) : Ροδούπολη
+Φωτόδεντρο - Προβολή αντικειμένου (photodentro.edu.gr) : Ροδούπολη https://photodentro.edu.gr/v/item/ds/8521/10862 
 mTiny Discover Kit | Makeblock Education (Makeblock mTiny Discover Kit | Makeblock Προϊόντα | Eduk8) 245 ευρώ
 
 Θεωρητικό Πλαίσιο
